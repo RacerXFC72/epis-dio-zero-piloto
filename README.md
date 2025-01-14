@@ -78,4 +78,4 @@ Tornar-se um piloto comercial no Brasil exige dedicação, estudo e muita paixã
 
 Esperamos que este episódio tenha inspirado você a dar os primeiros passos rumo ao seu sonho de voar. Fique conosco para mais dicas e histórias do mundo da aviação. Até a próxima!
 
-TEXTO PARA FALA através do ELEVEN LABS:
+TEXTO PARA FALA através do ELEVEN LABS: Verificar o arquivo acima.
